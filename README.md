@@ -3,20 +3,29 @@
 > **歌詞登録ステータス：プレーン歌詞のみ**
 
 ```
-All I Want for Christmas Is You - 大橋トリオ
 I don't want a lot for Christmas
 There is just one thing I need
 I don't care about presents
 Underneath the Christmas tree
-I don't need to hang my stocking
+I just want you for my own
+More than you could ever know
+Make my wish come true
+All I want for Christmas is you...
+
+I don't want a lot for Christmas
+There is just one thing I need
+I don't care about presents
+Underneath the Christmas tree
+I don't need to hang my stoking
 There upon the fireplace
 Santa Claus won't make me happy
 With a toy on Christmas day
 I just want you for my own
 More than you could ever know
-Make my wish come true...
-All I want for Christmas is you...
+Make my wish come true
+All I want for Christmas is you
 You baby
+
 I won't ask for much this Christmas
 I won't even wish for snow
 I'm just gonna keep on waiting
@@ -28,23 +37,26 @@ Hear those magic reindeer click
 'Cause I just want you here tonight
 Holding on to me so tight
 What more can I do?
-Baby all I want for Christmas
+Baby all I want for Christmas is you
+
 All the lights are shining
 So brightly everywhere
-And the sound of children's
-Laughter fills the air
+And the sound of children's laughter fills the air
 And everyone is singing
 I hear those sleigh bells ringing
-Santa won't you bring me the one
-I really need-won't you please
-Bring my baby to me...
-I don't want a lot for Christmas
+Santa won't you bring me the one I really need
+won't you please bring my baby to me...
+
+Oh I don't want a lot for Christmas
 This is all I'm asking for
 I just want to see my baby
 Standing right outside my door
-I just want you for my own
+Oh I just want you for my own
 More than you could ever know
 Make my wish come true
 Baby all I want for Christmas is you...
-All I want for Christmas is you
+
+All I want for Christmas is you baby...
+All I want for Christmas is you baby...
+All I want for Christmas is you baby...
 ```
